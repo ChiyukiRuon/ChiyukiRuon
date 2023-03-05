@@ -9,3 +9,7 @@ Hello!
 Here is ChiyukiRuon,you can also call me Chiyuki  
 - I'm trying to improve myself:D
 - otaku,like anime and games
+
+MyBlog：[千雪琉音の桃花源](https://chiyukiruon.top)  
+Twitter：[ちゆき琉音(ChiyukiRuon)](https://mobile.twitter.com/ChiyukiRuon)  
+Bilibili: [千雪琉音](https://space.bilibili.com/33908380)
